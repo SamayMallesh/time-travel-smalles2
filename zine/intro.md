@@ -1,1 +1,1 @@
-This zine discusses paradoxes in time travel.
+This zine explores the mysteries and paradoxes of time travel.
