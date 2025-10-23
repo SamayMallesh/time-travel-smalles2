@@ -1,0 +1,1 @@
+- [ ] Proofread grammar and formatting
