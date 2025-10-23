@@ -1,2 +1,1 @@
-## Intro
-This zine explores time travel, paradoxes, and the mysteries of building a time machine.
+This zine discusses paradoxes in time travel.
